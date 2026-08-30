@@ -1,1 +1,0 @@
-# EmelYILDIRIM.github.io
